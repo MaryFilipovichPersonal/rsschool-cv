@@ -1,1 +1,1 @@
-# rsschool-cv
+https://maryfilipovichpersonal.github.io/rsschool-cv/cv
